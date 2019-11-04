@@ -1,0 +1,1 @@
+# google-mapy.cz
